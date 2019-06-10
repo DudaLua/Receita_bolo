@@ -17,7 +17,8 @@ Recheio
     2 xícaras de frango assado ou cozido desfiado
     1 lata de tomate pelado picado
     Sal a gosto
+    
 
 Acessório
 
-    Assadeira de 19 x 31 cm untada com óleo 
+    Assadeira de 19 x 31 cm untada com óleo
